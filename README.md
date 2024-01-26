@@ -1,0 +1,2 @@
+# torneios.gg
+Em desenvolvimento 
